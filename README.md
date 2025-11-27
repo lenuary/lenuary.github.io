@@ -1,1 +1,1 @@
-# lenuary.github.io
+🔴 [ZOBACZ STRONĘ NA ŻYWO](https://lenuary.github.io)
